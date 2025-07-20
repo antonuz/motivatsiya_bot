@@ -1,1 +1,0 @@
-# motivatsiya_bot
